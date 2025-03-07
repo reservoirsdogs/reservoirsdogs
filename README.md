@@ -1,6 +1,6 @@
 @  reservoirsdogs 𝜗𝜚⋆₊˚
 
-![](https://64.media.tumblr.com/a734dd1e1de34fec05a46d4ee103a244/tumblr_inline_pdfwk3JqQL1so75yt_640.pnj)
+![](https://64.media.tumblr.com/7153b2d5eb602554226b9a7cf18137c5/tumblr_pc6320AwVP1xaeq2io1_1280.pnj)
 
 [rentry](https://rentry.co/reservoirsdog) & [strawpage](https://slutever.straw.page/) ★
 
